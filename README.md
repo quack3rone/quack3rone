@@ -1,7 +1,7 @@
 # Александр Яцюк
 
 **Местоположение:** Московская область, Дмитров  
-**Контакты:** [Telegram](https://t.me/quack3r1) | [Email](mailto:yatsuksasha2008@gmail.com) | [Проекты](https://wheresite.ru)
+**Контакты:** [Telegram](https://t.me/quack3r1) | yatsuksasha2008@gmail.com | [Проекты](https://wheresite.ru)
 
 ---
 
