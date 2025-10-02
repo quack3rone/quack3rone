@@ -1,6 +1,6 @@
 # Александр Яцюк
 
-**Контакты:** [Telegram](https://t.me/quack3r1) | yatsuksasha2008@gmail.com | [Проекты](https://wheresite.ru)
+**Контакты:** [Telegram](https://t.me/quack3r1) | [Проекты](https://wheresite.ru)
 
 ---
 
